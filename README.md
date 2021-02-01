@@ -1,1 +1,3 @@
-# aprendiendo que el corbata no tiene poto
+# aprendiendo que el corbata no tiene cuerpo decente.
+
+Roberto culiao enojon
